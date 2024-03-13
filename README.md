@@ -6,3 +6,6 @@
 
 ![image](https://github.com/metey12/Matematik-Oyunu-Math-Game/assets/161487449/1045e472-a58a-4057-a9e9-e47c887c10fc)
 
+![image](https://github.com/metey12/Matematik-Oyunu-Math-Game/assets/161487449/5a9004f5-2ce6-4411-8522-412472d046a1)
+
+
